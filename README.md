@@ -3,7 +3,7 @@
 - 🌱 I’m currently learning html and css
 - 💞️ I’m looking to collaborate on projects
 
-- 📫 How to reach me parthtiwaskar!23@gmail.com
+- 📫 How to reach me parthtiwaskar23@gmail.com
 - 😄 Pronouns: he/him
 - ⚡ Fun fact: i am here
 
